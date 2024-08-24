@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **wk0912374@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Lyx8nzXsfaJ3GXnDDXnBC9gTt-7t27wj/view?usp=drivesdk](https://drive.google.com/file/d/1Lyx8nzXsfaJ3GXnDDXnBC9gTt-7t27wj/view?usp=drivesdk)
+- 📄 Know about my experiences https://drive.google.com/file/d/1BtZ06UYd_cX5orsmT2g2OwxwssTY9aNx/view?usp=drivesdk
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
